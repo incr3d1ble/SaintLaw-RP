@@ -18,6 +18,7 @@ portay and giving you all a big expericence to roleplay in this server, and this
 8. satz - Satya (Community Management, Team Leader of Global Mod)
 9. Blacky - Destan (Deputy of Community Management, Team of Board Supervisor)
 10. B4ngJoy - Dimas (Staff Management, Supervisor Team)
+11. mikelo (Community Supervisor, Staff Team)
 
 
 ## Server Lore
